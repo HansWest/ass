@@ -4,4 +4,6 @@ Normaal is wat je vaak meemaakt.
 
 Als je niet buiten het 'normale' kunt stappen is er geen groei mogelijk.
 
+*Frank Zappa: Als je niet de mogelijkeid hebt om buiten het 'normale' kunt stappen is er geen groei mogelijk1*
+
 Normaal is soms onbegrijpelijk!
