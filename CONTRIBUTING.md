@@ -1,0 +1,2 @@
+Dit is een poging om een boek te schrijven niet alleen Dit is voorwerk voor het schrijven van een boek voor mensen met ASS, maar ook voor hun omgeving: hun partners, hun kinderen.
+De toon is intelligent en met humor maar niet schofferend. Met respect voor de mensen die ASS hebben maar ook met respect voor hun omgeving. Want het is lastig om ASS te hebben in een neurotypische wereld. Maar soms is het ook best alstig om een relatie te hebben met iemand met ASS.
