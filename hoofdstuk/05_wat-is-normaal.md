@@ -9,4 +9,4 @@ mogelijk niet buiten het 'normale' kunt stappen is er geen groei mogelijk1*
 
 Normaal is soms on-be-grij-pe-lijk! (als je er rationeel naar kijkt)
 
-Harley Quinn: Normal is a setting on your dryer
+Harley Quinn: 'Normal' is a setting on your dryer
