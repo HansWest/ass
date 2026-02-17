@@ -21,4 +21,8 @@ Deze repository is voorwerk voor een boek over ASS, bedoeld voor mensen met ASS 
 - Gebruik Markdown en houd zinnen kort.
 - Licht aan het begin kort toe wat je toevoegt of wijzigt.
 
+## Wat we niet opnemen
+
+- Medische claims over genezing van ASS.
+
 Dank voor je bijdrage.
