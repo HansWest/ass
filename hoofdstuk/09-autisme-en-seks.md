@@ -4,24 +4,28 @@ Autisme en seksualiteit zijn beide complexe, gelaagde onderwerpen die vaak verke
 
 ---
 
-Mensen met autisme hebben net als ieder ander zin in een bevredigend seksueel leven, maar kunnen tegen unieke uitdagingen aanlopen. Het is belangrijk om duidelijk te maken dat ervaringen sterk kunnen verschillen, omdat seks van persoon tot persoon verschilt en omdat al die belevingen natuurlijk volstrekt legitiem zijn. Van hartstikke seksueel tot a-seksueel, van va=nilla tot kinky. Alles is persoonlijk en uitstekend als iedereen er plezier aan beleeft. En ASS is natuurlijk een spectrum dat loopt van onbereikbaar tot mensen die hoog functioneren in de maatschappij. Dus ik probeer hier alleen een aantal belangrijke punten op te sommen om je te laten nadenken over de *jouw* seks en *jouw* autisme:
+Mensen met autisme hebben net als ieder ander zin in (en recht op) een persoonlijk bevredigend seksueel leven, maar kunnen wel tegen unieke uitdagingen aanlopen. Vooraf is het belangrijk om duidelijk te maken dat ervaringen sterk kunnen verschillen, omdat seks van persoon tot persoon verschilt en omdat al die belevingen volstrekt legitiem zijn. Van hartstikke seksueel tot a-seksueel, van va=nilla tot kinky. Alles is persoonlijk en uitstekend als iedereen er plezier aan beleeft. En ASS is natuurlijk een spectrum dat loopt van onbereikbaar tot mensen die hoog functioneren in de maatschappij. Dus ik probeer hier alleen een aantal belangrijke punten op te sommen om je te laten nadenken over de *jouw* seks en *jouw* autisme:
 
 ### 1. Communicatie is de basis, maar kan moeilijker zijn
 In die neurotypische maatschappij is er een wonderlijke, volledig onbegrijpelijke verwachting dat we het met z'n allen niet over seks hebben en toch perfect weten hoe seks zou moeten verlopen om het prettig te maken voor de partner. Mensen zouden non-verbale signalen perfect moeten kunnen begrijpen. Mensen zouden 'aan moeten voelen' wat de ander wil zonder dat er woorden aan te pas komen. Niet zo onbegrijpelijk dus dat de orgasm gap tussen mannen en vrouwen zo groot is. 
-Voor veel autistische mensen zijn die hele nooit uitgesproken 'afspraken' *compleet* onbegrijpelijk. En dan zijn ook nog eens deze signalen lastig te lezen als je daar niet als een nerd mee bezig bent geweest.
-Het is niet alleen oké, maar eigenlijk juist iets dat veel vanilla's noodzakelijk om **heel direct en concreet** te zijn.
-    *   Vraag bijvoorbeeld: "Vind je het fijn als ik dit doe?" of "Wat zou jij nu willen?" in plaats van te hopen dat de ander het aanvoelt.
-*   **Leer je eigen grenzen kennen en aangeven:** Oefen met het zeggen van "ja", "nee" of "misschien" over verschillende handelingen. Dit kan in het begin ongemakkelijk zijn, maar duidelijke afspraken ("enthousiaste consent") maken seks veiliger en leuker voor beide partijen.
+Voor veel autistische mensen zijn die hele nooit uitgesproken 'afspraken' *compleet* onbegrijpelijk. En dan zijn ook nog eens deze signalen lastig te lezen als je daar niet als een nerd mee bezig bent geweest om die dingen uit te pluizen.
+*   **Concreet zijn in wereld die seks verzwijgt** Het is niet alleen oké, maar het is eigenlijk juist iets dat veel neurotypische vanilla's zouden mogen *leren* om over seks zo **direct en concreet** te zijn als dat gunsitg zou zijn vor het hebben van leuke seksualiteit. Maar neurotypische mensen schrikken soms een beetje van expliciete vragen.
+    * bijvoorbeeld: "Vind je het fijn als ik dit doe?" of "Wat zou jij nu willen?" in plaats van te gaan zitten hopen dat de ander het aanvoelt.
+*   **Leer je eigen grenzen kennen en aangeven:** Oefen niet alleen met het zeggen van "ja", "nee" of "misschien" bij verschillende handelingen. Maar ook over het 'waarom' van deze seks. Zeg het als je lekker wil genieten zonder verplichtingen. Zeg het als je op zoek bent naar verdieping van de relatie. Zeg het als je monogaam wilt zijn. Zegt het als je consensual non-monogamous wilt zijn. Grenzen kunnen in het begin ongemakkelijk zijn, maar duidelijkheid maakt dat daten en seks veiliger en leuker worden voor alle partijen.
 
 ### 2. Zintuiglijke gevoeligheden (Sensorische prikkels)
-*   **Over- of ondergevoeligheid:** Seks kan een overweldigende zintuiglijke ervaring zijn. Aanraking, geuren, smaken, geluiden (gekreun, muziek) en licht kunnen anders binnenkomen.
-    *   **Overprikkeling:** Sommige aanrakingen kunnen kriebelig of zelfs pijnlijk aanvoelen. Bepaalde texturen (van lakens, glijmiddel) kunnen vervelend zijn.
-    *   **Onderprikkeling:** Je hebt misschien juist heel stevige aanraking of druk nodig om iets te voelen.
-*   **Pas de omgeving aan:** Je hebt de controle. Je kunt de lichten dimmen, een bepaalde geur vermijden, zachte dekens gebruiken of juist een bepaalde stimulans toevoegen (zoals een weighted blanket). Communiceer hierover met je partner.
+*   **Over- of ondergevoeligheid:** Seks kan een overweldigende zintuiglijke ervaring zijn. Aanraking, geuren, smaken, geluiden (gekreun, muziek) en licht kunnen anders binnenkomen dan bij neurotypische mensen. Weer een gebied waarop je misschien mag leren om dan maar 'anders' te zijn als je anders bent.
+    *   **Overprikkeling:** Sommige aanrakingen kunnen kriebelig of zelfs pijnlijk aanvoelen. Bepaalde texturen (van lakens, glijmiddel) kunnen vervelend zijn. Vaak is dat een gegeven waar je mee moet leren werken. Want 'uithouden' sttaak leuke seks natuurlijk fors in de weg.
+    *   **Onderprikkeling:** Je hebt met ASS misschien juist heel stevige aanraking of druk nodig om iets te voelen. Leer dat uidelijk te maken, dan kan je kijken of er een mouw aan te passen is.
+*   **Pas de omgeving aan:** Onthou dat er in seks van alles mogelijk ismet het doel om het voor beiden leuker te maken. Dus jij hebt controle. Je kunt de lichten dimmen, een bepaalde geuren vermijden, zachte dekens gebruiken of juist een bepaalde stimulans toevoegen (zoals een weighted blanket). Communiceer hierover met je partner om het voor beiden oké te maken.
 
 ### 3. Het sociale script en verwachtingen
-*   **Er is geen vast script:** In films en series lijkt seks vaak spontaan en perfect te verlopen. In werkelijkheid is het vaak onhandig, grappig en moet je ontdekken wat werkt. Voor autistische mensen die geneigd zijn patronen te volgen, kan de druk van "hoe het hoort" verlammend werken.
+*   **Er is géén vast script:** In films en series lijkt seks vaak spontaan en perfect te verlopen. In werkelijkheid is het vaak onhandig, een beetje 'messy', hopelijk grappig en het is iets waarin je vooral samen moet ontdekken wat werkt. Voor autistische mensen die geneigd zijn patronen te volgen, kan de druk van "hoe het hoort" aan de enee kant het gevoel geven dat je "het goed oet" maar het kan aan de andere kant behoorlijk verlammend werken als je wilt genieten.
 *   **Maak je eigen script:** Het is goed om vooraf (of tijdens) te bespreken wat er gaat gebeuren. Dit geeft voorspelbaarheid en vermindert angst. Het betekent niet dat alle spontaniteit verdwijnt, maar het geeft een veilig frame.
+
+
+@@@
+
 
 ### 4. Speciale interesses en focus
 *   **Hyperfocus als kracht:** Het vermogen om je te verdiepen in een onderwerp kan een voordeel zijn. Je kunt je speciale interesse richten op het leren over seks, anatomie, verschillende technieken of plezier. Kennis kan onzekerheid wegnemen.
@@ -75,7 +79,7 @@ BDSM is per definitie een subcultuur die buiten de normatieve verwachtingen van 
 
 ### ⚠️ Een belangrijke kanttekening: het is geen utopie
 Hoewel de principes van BDSM goed kunnen aansluiten, betekent dat niet dat de gemeenschap altijd toegankelijk is.
-*   Onderzoek naar pup play toonde aan dat autistische deelnemers **minder sociale veerkracht** hadden en zich **minder verbonden voelden met de community**, ondanks dat ze dit wel graag wilden. Ze hadden minder vaak hechte "roedel"-verbanden en voelden zich sociaal meer beperkt dan niet-autistische deelnemers .
+*   Onderzoek naar pup play toonde aan dat autistische deelnemers soms **minder sociale veerkracht** hadden en zich **minder verbonden voelden met de community**, ondanks dat ze dit wel graag wilden. Ze hadden minder vaak hechte "roedel"-verbanden en voelden zich sociaal meer beperkt dan niet-autistische deelnemers .
 *   Dit benadrukt dat, hoewel de *activiteit* aantrekkelijk is, de *sociale dynamiek* binnen subculturen nog steeds uitdagend kan zijn voor autistische mensen. Het vinden van de juiste, neurodiversiteitsvriendelijke groep of partner is cruciaal.
 
 ### 💡 Wat dit voor jou betekent
