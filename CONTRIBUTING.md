@@ -20,6 +20,7 @@ Deze repository is voorwerk voor een boek over ASS, bedoeld voor mensen met ASS 
 - Voeg tekst toe in bestaande bestanden in de juiste map.
 - Gebruik Markdown en houd zinnen kort.
 - Licht aan het begin kort toe wat je toevoegt of wijzigt.
+- Als je dingen uit de inspriatie haalt en in de tekst plaatst, verwijder ze dan uit de inspiratie
 
 ## Wat we niet opnemen
 
